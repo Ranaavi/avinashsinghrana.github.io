@@ -16,6 +16,7 @@ you can use for pretty much whatever.
 AJ
 aj@lkn.io | @ajlkn
 
+***LINK OF RESULT*** - https://ranaavi.github.io/avinashsinghrana.github.io/
 
 Credits:
 
